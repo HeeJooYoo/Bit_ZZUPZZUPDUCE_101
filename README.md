@@ -9,4 +9,4 @@
 
 
 발표 URL
-https://www.youtube.com/watch?v=OpuhJ4jjYDQ
+https://youtu.be/OregV7nc89s
